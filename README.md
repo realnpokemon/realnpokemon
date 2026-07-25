@@ -8,4 +8,6 @@
 <p align="center"><b>𝐇𝐄 ╱ 𝐓𝐇𝐄𝐘</b></p>
 <p align="center"><b>𝐓𝐑𝐀𝐍𝐒𝐌𝐀𝐒𝐂 ⟡ 𝐍𝐎𝐍𝐁𝐈𝐍𝐀𝐑𝐘</b></p>
 
-
+[@IX9I](https://github.com/IX9I)
+[@GalarianArthurr](https://github.com/GalarianArthurr)
+ 
