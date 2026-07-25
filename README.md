@@ -20,3 +20,6 @@
 [@c4taclysmic](https://github.com/c4taclysmic)
 [@windlesstorm](https://github.com/windlesstorm)
 [@Sk1ttlezWasH3re](https://github.com/Sk1ttlezWasH3re)
+[@hynugew](https://github.com/hynugew)
+
+<img width="1000" height="70" alt="IMG_2941" src="https://github.com/user-attachments/assets/5d679cd5-6f18-4374-9c5c-34c4403a4ab2" />
