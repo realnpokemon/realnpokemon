@@ -23,3 +23,9 @@
 [@hynugew](https://github.com/hynugew)
 
 <img width="1000" height="70" alt="IMG_2941" src="https://github.com/user-attachments/assets/5d679cd5-6f18-4374-9c5c-34c4403a4ab2" />
+
+<p align="center">
+
+![Profile Views](https://komarev.com/ghpvc/?username=realnpokemon&color=green)
+
+</p>
