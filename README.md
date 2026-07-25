@@ -19,3 +19,4 @@
 [@W1KILIUS](https://github.com/W1KILIUS)
 [@c4taclysmic](https://github.com/c4taclysmic)
 [@windlesstorm](https://github.com/windlesstorm)
+[@Sk1ttlezWasH3re](https://github.com/Sk1ttlezWasH3re)
