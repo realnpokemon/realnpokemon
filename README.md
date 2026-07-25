@@ -16,4 +16,6 @@
 [@IX9I](https://github.com/IX9I)
 [@GalarianArthurr](https://github.com/GalarianArthurr)
 [@AmysBakingShow](https://github.com/AmysBakingShow)
-
+[@W1KILIUS](https://github.com/W1KILIUS)
+[@c4taclysmic](https://github.com/c4taclysmic)
+[@windlesstorm](https://github.com/windlesstorm)
