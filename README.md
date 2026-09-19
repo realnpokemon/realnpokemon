@@ -8,12 +8,6 @@
 
 ***
 
-<p align="center"><b>𝐂𝐀𝐓𝐙𝐙 ⟡ 𝐋𝐈𝐍𝐊 ⟡ 𝐍 ⟡ 𝐂𝐀𝐑𝐌𝐈𝐍𝐄</b></p>
-<p align="center"><b>𝐓𝐑𝐀𝐍𝐒𝐌𝐀𝐒𝐂 ⟡ 𝐍𝐎𝐍𝐁𝐈𝐍𝐀𝐑𝐘</b></p>
-<p align="center"><b>𝐇𝐄 ╱ 𝐓𝐇𝐄𝐘</b></p>
-
-***
-
 <h2 align="center"><b>￬ 𝐂𝐎𝐎𝐋 𝐏𝐄𝐎𝐏𝐋𝐄 ￬</b></h2>
 
 
