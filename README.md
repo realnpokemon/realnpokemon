@@ -1,6 +1,9 @@
 <img width="1010" height="239" alt="IMG_4974" src="https://github.com/user-attachments/assets/99d2e91a-90db-4d96-a524-2ca26643e3b3" />
 
-<img width="1000" height="70" alt="IMG_2941" src="https://github.com/user-attachments/assets/185c7bac-bd00-4d58-89c7-fa2cc6db7ee4" />
+<img width="1280" height="102" alt="IMG_4977" src="https://github.com/user-attachments/assets/d8ae90fb-9658-4cf6-b49e-e6ac53c4f115" />
+
+
+
 <p align="center"><i>"I cannot see the future yet... The world is still to be determined..."</i></p>
 
 ***
@@ -25,7 +28,8 @@
 [@volescube](https://github.com/volescube)
 
 
-<img width="1000" height="70" alt="IMG_2941" src="https://github.com/user-attachments/assets/5d679cd5-6f18-4374-9c5c-34c4403a4ab2" />
+<img width="1280" height="102" alt="IMG_4977" src="https://github.com/user-attachments/assets/fef1e4d5-6121-493e-b2b5-7be3aa7d61be" />
+
 
 <p align="center">
 
